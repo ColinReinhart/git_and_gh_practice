@@ -1,0 +1,1 @@
+In high school I got the chance to travel to Germany, Austria, Italy, and Switzerland though a Foreign Exchange program. I was able to snowboard the Swiss Alps, see the Matterhorn completely unobstructed (which I am told is very lucky), and even snowboard from Switzerland into Northern Italy, grab some lunch, then snowboard back.
