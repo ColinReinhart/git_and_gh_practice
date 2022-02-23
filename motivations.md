@@ -1,0 +1,1 @@
+After 13 years in Multi-Family Property Management, I was thoroughly burnt out. I needed a change and after seeing the success my wife has had in the industry, and briefly looking at the job opportunities I was qualified for that all looked miserable, I decided this would be my best option to find a well paying and satisfying career with good work/life balance.
